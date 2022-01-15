@@ -8,4 +8,4 @@ Hi there, I'm Raffaele Squillante 👋
    
 * ⚡ Personal aspects: i'm a solar and competitive guy who wants always to reach the top.
   
-Download my curriculim here: https://drive.google.com/file/d/1pwq6Gn8AOFEaIfuep8inX8dBIcj0Jf8r/view?usp=sharing
+Download my curriculim here: urly.it/3h5ax
